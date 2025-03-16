@@ -53,7 +53,7 @@ Here are some screenshots of BusinessBot in action:
 ## Contact 📧
 For inquiries, please:  
 - Fill out the contact form on our website.  
-- Reach out via email at **[support@businessbot.com](mailto:support@businessbot.com)**.  
+- Reach out via email at **[nilesh1234mete@gmail](mailto:nilesh1234mete@gmail)**.  
 
 ---
 
